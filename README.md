@@ -27,8 +27,8 @@ Sizes & Pricing:
 Keyboards (Base):
 Redragon K552 RM159
 Magegee MK Box RM 89
-Switches (Additional):
 Anne Pro 2 RM 239
+Switches (Additional) (Per keyboard):
 Red Switch RM 20
 Blue Switch RM 19
 Brown Switch RM 19
