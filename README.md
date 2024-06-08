@@ -53,6 +53,9 @@ Promotions:
 Tax:
 6% Service Tax
 
+Postage Area:
+Entirety of Southeast Asia (Mainly Malaysia, Singapore and Thailand)
+
 Others:
 Payment can be made by card, QR, and online banking
 Do not accept any form of cash
