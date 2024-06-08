@@ -7,7 +7,7 @@ Time open:
 24/7 (Online Store)
 
 Website Link:
-(https://chocolate-cakes-kijjl6g.gamma.site/)
+(https://keychoice-fgh21wk.gamma.site/)
 
 Phone Number:
 +60 18-665 7573
