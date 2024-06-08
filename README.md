@@ -54,7 +54,7 @@ Tax:
 6% Service Tax
 
 Postage Area:
-Entirety of Southeast Asia (Mainly Malaysia, Singapore and Thailand)
+Entirety of Southeast Asia (Mainly Malaysia, Singapore and Thailand) (Search web for Southeast Asia countries)
 
 Others:
 Payment can be made by card, QR, and online banking
